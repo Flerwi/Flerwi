@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Flerwi
+- 👀 I’m interested in Crypto
+- 🌱 I’m currently learning c++
+- 📫 How to reach me ds: flerwi
+- 😄 Pronouns: Su/per/se/xie
+- ⚡ Fun fact: Valorant rank: Radiant
